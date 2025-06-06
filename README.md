@@ -112,17 +112,17 @@
 
 # Αναλυτική Παρουσίαση Δράσεων:
 
-3ο Δημοτικό Σχολείο Βασιλικού "Robowaves"
+3ο Δημοτικό Σχολείο Βασιλικού [Robowaves](https://www.canva.com/design/DAGlkwKcUlk/k3vBk71i7Y6JQN__OQu-Cg/view?utm_content=DAGlkwKcUlk&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hb35af4b636)
 
-2ο Δημοτικό Σχολείο Ιστιαίας "Κυκλοφορώ Σωστά"
+2ο Δημοτικό Σχολείο Ιστιαίας [Κυκλοφορώ Σωστά](https://www.canva.com/design/DAGpYoKEB0U/7ikw8Wx0efGLcxM4JPZnZA/view?utm_content=DAGpYoKEB0U&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=hdcf5455567)
 
-Δημοτικό Σχολείο Γρανίτσας: "Eco QR- Σαρώστε τη Γρανίτσα"
+Δημοτικό Σχολείο Γρανίτσας [EcoQR- Σαρώστε τη Γρανίτσα](https://www.canva.com/design/DAGpR0l5WcM/QKVoLkmH5ozJyVyIvQKowg/view?utm_content=DAGpR0l5WcM&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h31feb82b6d)
 
-20ο Δημοτικό Σχολείο Λαμίας: "Παιχνίδια και Περιπέτειες στο Πάρκο με ρομπότ και κώδικες QR"
+20ο Δημοτικό Σχολείο Λαμίας [Παιχνίδια και Περιπέτειες στο Πάρκο με ρομπότ και κώδικες QR](https://www.canva.com/design/DAGpMRSjupw/49ImJmW_WZyl9wqttzPvRQ/view?utm_content=DAGpMRSjupw&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h59d9f15e4e)
 
-Δημοτικό Σχολείο Λιανοκλαδίου: "QRCO...πιάστε"
+Δημοτικό Σχολείο Λιανοκλαδίου [QRCO...πιάστε](https://www.canva.com/design/DAGpMuzkMnA/NCBr7O-0m9dG4Sft0GFHTg/view?utm_content=DAGpMuzkMnA&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h6eb7ded147)
 
-Δημοτικό Σχολείο Δεσφίνας "Job Explorers"
+Δημοτικό Σχολείο Δεσφίνας [Job Explorers](https://www.canva.com/design/DAGpSZwyAqo/Q46-VWoHqZ9sm7jWk415ew/view?utm_content=DAGpSZwyAqo&utm_campaign=designshare&utm_medium=link2&utm_source=uniquelinks&utlId=h72b135abbd)
 
 
 
