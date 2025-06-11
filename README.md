@@ -81,15 +81,25 @@
 Ακόμη, χρησιμοποιήθηκαν ψηφιακά εργαλεία για να ενισχύσουν και να βελτιώσουν την αποτύπωση και διάχυση των δράσεων, όπως:
 
 **Εργαλεία παρουσίασης:** Canva, Google Slides, Mural, Genially
+
 **Ψηφιακές εκθέσεις/3D παρουσιάσεις:** Artsteps, Tinkercad
+
 **Ψηφιακοί τοίχοι:** Padlet, Dotstorming, Digiad, Lino.it
+
 **Mind maps:** Coggle
+
 **Εργαλεία για ψηφοφορία:** Tricider
+
 **Συλλογή πληροφοριών:** identify.plantnet
+
 **Εργαλεία χαρτογράφησης:** Google Earth, Google Maps, Storymapjs
+
 **Ψηφιακά παιχνίδια:** Puzzel.org, Kahoot, Wordwall
+
 **Εργαλεία ΑΙ:** Gamma app, Spatio.io, Meshy, Echo3D
+
 **QR codes:** QR code generator
+
 **Αξιολόγηση:** Google Forms, Answergarden, Mentimeter
 
 # Τόπος Διεξαγωγής:
